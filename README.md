@@ -10,3 +10,6 @@ https://sites.google.com/view/l3ticia/in%C3%ADcio
 
 •	Apresentação;
 https://docs.google.com/presentation/d/1NTmiEJc9BXkXHHIU8KGUgq1DAZmPVgBPerFDR3tS6to/edit?slide=id.gc6f80d1ff_0_66#slide=id.gc6f80d1ff_0_66
+
+•	Endereço LinkedIn;
+https://www.linkedin.com/in/letícia-andrade-pereira-362a683b3
