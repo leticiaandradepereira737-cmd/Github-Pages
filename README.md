@@ -1,6 +1,6 @@
 # Github-Pages
 
-Aqui você encontra meu portfólio em constante evolução, unindo meus projetos pessoais e acadêmicos. Atualmente no 1° semestre de Ciência da Computação (2026), estou dando meus primeiros passos na tecnologia. Vamos nos conectar? Meu LinkedIn está logo abaixo!
+Aqui você encontra meu portfólio em constante evolução, unindo meus projetos pessoais e acadêmicos. Atualmente no 1° semestre de Ciência da Computação (2026), estou dando meus primeiros passos na tecnologia. Vamos nos conectar? Meu LinkedIn está logo abaixo ou você pode encontra-lo na minha Bio!
 
 •	 Currículo;
 https://www.canva.com/design/DAHGkwCf5rE/vUz8VX0noENizRSLyf-Xug/edit 
